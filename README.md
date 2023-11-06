@@ -10,7 +10,7 @@
 
 🌐 Always eager to learn and contribute to exciting projects. Let's connect and collaborate!
 
-📫 Reach me at: naeemathasneem03@gmial.com
+📫 Reach me at: naeemathasneem03@gmail.com
 
 🔗 Connect with me on LinkedIn: https://www.linkedin.com/in/naeema-thasneem-3480261bb
 
